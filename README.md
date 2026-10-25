@@ -1,5 +1,5 @@
 
-## - ✧
+## - " SPREAD THE WORD. "
  
 ˗ˋˏ ♡ ˎˊ˗ - Oscar/ruth * they/any ' semi-active on PT [c*h freely]
 
