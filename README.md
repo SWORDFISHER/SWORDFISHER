@@ -1,7 +1,7 @@
 
 ## - " SPREAD THE WORD. "
  
-˗ˋˏ ♡ ˎˊ˗ - Oscar/ruth * they/any ' semi-active on PT [c*h freely]
+˗ˋˏ ♡ ˎˊ˗ - "Should we host a cuneral" * they/any ' semi-active on PT [c*h freely]
 
 ✦ - 𝙛𝙤𝙡𝙡𝙤𝙬 𝙥𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩 + 𝙩𝙞𝙠𝙩𝙤𝙠 ----> " @ 𝙬𝙖𝙘𝙠𝙮𝙖𝙣𝙙𝙘𝙧𝙖𝙥𝙥𝙮 " 𝙤𝙣 𝙗𝙤𝙩𝙝 𝙥𝙡𝙖𝙩𝙛𝙤𝙧𝙢𝙨 ! 
 
