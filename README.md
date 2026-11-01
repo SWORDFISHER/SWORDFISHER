@@ -7,6 +7,6 @@
 
 𐚁๋࣭⭑ֶָ֢ - "𝐘𝐨𝐮'𝐯𝐞 𝐦𝐞𝐭 𝐰𝐢𝐭𝐡 𝐚 𝐭𝐞𝐫𝐫𝐢𝐛𝐥𝐞 𝐟𝐚𝐭𝐞, 𝐡𝐚𝐯𝐞𝐧'𝐭 𝐲𝐨𝐮 ?"
 
-PONYTOWN - won't be active or interact often unless a friend is online , Often near the bakery in the CRP area ┆ ᶻ 𝘇 𐰁
+𝗣𝗧  :  𝗮𝗳𝗸 𝗺𝗼𝘀𝘁𝗹𝘆 , 𝗜 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱 𝗯𝗲𝗶𝗻𝗴 𝗰𝗼𝘃𝗲𝗿𝗲𝗱 !!  ︴ 𝗳𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗰 * 𝗵 ! ! 
 
 ᨶ႒ᩚ
