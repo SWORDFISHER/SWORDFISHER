@@ -15,7 +15,7 @@
 
 𝓟ʟᴇᴀsᴇ ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ᴏғғ ᴍʏ ᴄᴏsᴘʟᴀʏs ᴏʀ ᴀʀᴛ . 𝓐ɴʏᴏɴᴇ ᴡɪᴛʜ ᴍʏ ᴄᴏsᴘʟᴀʏs ᴡɪᴛʜ ɴᴏ ɢɪᴛʜᴜʙ ʟɪɴᴋᴇᴅ ɪsɴ'ᴛ ᴍᴇ 
 
-𝓦hispering to me is highly recommended ! 
+𝓦hispering to me is highly recommended ! ;; There's a chance I won't see ur whisper since I'll be busy sometimes, so expect me not to reply or reply late if I DO see it later on !! 
 
 
                     BOUNDARIES
